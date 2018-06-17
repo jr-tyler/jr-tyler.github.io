@@ -1,1 +1,0 @@
-# jr-tyler.github.io
